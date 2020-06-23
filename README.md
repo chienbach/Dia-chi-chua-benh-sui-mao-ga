@@ -68,4 +68,3 @@ người bệnh cần phải tái kiểm tra theo lịch hẹn để bảo đả
 giao hợp tình dục an toàn, lấy bao cao su hoặc chỉ cần thiết phải &quot;làm chuyện ấy&quot; chung thủy với một đối tượng duy nhất.<br />
 Xây dựng thói quen sinh hoạt sinh hoạt và lao động lành mạnh, chế độ ăn uống phù hợp, giảm thiểu các chất kích thích như bia, rượu, kháng sinh lá và cà phê&hellip; nhằm giữ gìn sức khỏe, phòng tránh chứng bệnh tật.<br />
 Bạn đang nghi ngờ mắc sùi mào gà và quan tâm không biết địa chỉ điều trị sùi mào gà ở đâu tốt tại Hà Nội? Hãy liên hệ ngay đối với bác sĩ trung tâm y tế Thái Hà để thực hiện quá trình chữa trị bệnh sùi mào gà ngay lập tức và tốt nhất bằng liệu pháp nhấp chuột vào nút &ldquo;Bác sĩ tư vấn&rdquo; bài viết này</p>
-nguồn: http://khamnamkhoathaiha.com/dia-chi-chua-benh-sui-mao-ga-o-dau-102300.html
